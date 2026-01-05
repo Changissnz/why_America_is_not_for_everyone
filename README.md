@@ -23,7 +23,7 @@ what the press was saying when I first looked into college locations, back in hi
 that went on, as well as the decline of Intel Corporation, is about 10%, that deplorable number. The sucker I was back then... go to college, graduate at 22, get 
 settled into industry by 25, then get married and own a home by this age. College proved to be very enthusiastic in utilizing barriers past the barrier to entry, 
 which is exceptional high school scholastic work. Barriers included professors' politics and student politics. Politics can be disgusting. My college years were 
-about as enjoyable as a child that believes in Santa. The child grows up, looks back, and does not see the same things, and the nostalgia they feel may very well 
+about as enjoyable as being a child that believes in Santa. The child grows up, looks back, and does not see the same things, and the nostalgia they feel may very well 
 turn into an indignation at being force fed lies of an industrial scale but for poor industrial outcomes, hence fiascos such as the student debt crisis. 
 
 A few days ago, I watched a short clip of the rapper Mac Miller, now deceased. In the video, Mac Miller was trash talking Donald Trump in about 2016-2017. Mac Miller 
