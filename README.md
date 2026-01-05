@@ -112,7 +112,7 @@ group? Drugs? Technological talent? Language, intangible language, is already di
 better United States? Things cannot be natural and free-flowing for long, based on my personal experience. Somewhere along the line of joyriding and careless partnerships, a serious 
 concern or a grave insult disrupts the merriness. Then matters break off, some go on their way and don't cling on, and others cling on because of their modus operandi. Some people 
 stomach a lot more before they become outspoken, others complain and inform about everything, and yet others take vows of silence. I'm not saying there's a direct correlation of these 
-atittudes and ethnicities, but I am saying there is a correlation. What is the best out of these three??
+atittudes with ethnicity, but I am saying there is a correlation. What is the best out of these three??
 
 I was going to write more to this article on this great and wonderful thing people say is the "A.I. revolution". But I am stopping myself short of going on about the merits of 
 A.I. for the simple reason of over-politicization of American social spheres. That is what I think from my perspective. Too many opinions. Too much talk of wealth this, wealth 
