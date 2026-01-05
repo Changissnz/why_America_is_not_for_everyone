@@ -117,6 +117,6 @@ atittudes with ethnicity, but I am saying there is a correlation. What is the be
 I was going to write more to this article on this great and wonderful thing people say is the "A.I. revolution". But I am stopping myself short of going on about the merits of 
 A.I. for the simple reason of over-politicization of American social spheres. That is what I think from my perspective. Too many opinions. Too much talk of wealth this, wealth 
 that, and fearmongering by those that don't understand the technology. The capability to not have to do manual work for a living, due to A.I., coupled with people's social 
-obsessions to make a difference, means that many people will feel like they have to be part of political movements and make political statements in order to obtain social 
+obsessions to make a difference, mean that many people will feel like they have to be part of political movements and make political statements in order to obtain social 
 credit. And then they can convert that social credit into cryptocurrency or American dollars or something. I think people still have to work and that people still have the 
 right to maintain an autonomy, the right to maintain ownership of their content, and still be required to live as individuals. 
