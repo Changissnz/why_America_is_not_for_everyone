@@ -38,7 +38,7 @@ have to participate in all this vice, in order to uncover the vice. They might a
 that has only a phone as their most valuable possession would be able to score hard drugs? And these hard drugs are imported, not grown domestically, or manufactured 
 in a factory. These drugs are also highly addictive and do not provide for much intellectual introspection. A haze of euphoric sleepiness, or short little spikes of 
 thrilling exhilaration, based on the anecdotes I've read. But the drug business can pay a lot more than scholasticism. Scholasticism is as lame as it is intangible, 
-in the minds of people seeking material pleasures and material wealth. So there are and continue to be these unknown channels of drug distribution. I figure someone 
+in the minds of people seeking material pleasures and material wealth. So there were and continue to be these unknown channels of drug distribution. I figure someone 
 heavily involved in it gets caught, they might even get killed for getting caught, and then the whole little pyramid crumbles. Then a "new player" shows up and does 
 practically the same exact thing, but here's the catch...they struck a deal with the police, so they won't make the same mistakes as the last guy and they are 
 confident they won't suffer the same fate as the last guy. 
