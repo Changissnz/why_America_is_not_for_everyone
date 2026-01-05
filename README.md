@@ -79,7 +79,7 @@ more insecure, more needy, more hungry for power and money from men. And I'd lik
 Institutions. Big countries such as the United States have their representatives publicly proclaim their love for institutions. Good American institutions mean better business. 
 Better business means big business is more free from corruption. Underdeveloped countries also have a love for institutions since the populace becomes more organized and stuck 
 within their realms, tribes maintaining alliances with each other by granting permission for the male of one tribe to marry the female of another, members of the same faith 
-attending the same place of workplace, the farming clans reliably delivering products to the marketplace, those kinds of things that still occur in developed countries, but not 
+attending the same place of worship, the farming clans reliably delivering products to the marketplace, those kinds of things that still occur in developed countries, but not 
 as overt and culturally ceremonious in display. And there are more options in developed countries. Insurgent groups and anti-establishment power players have other notions of 
 institutions. When institutions cannot deliver, for example, products cannot be made, labor is broken, and education becomes viewed more as brainwashing than improving the mind, 
 those institutions get put up for opportunistic questions. And anti-establishment factions attempt to weaponize doubts of institutions and marshal beliefs in better things if matters 
