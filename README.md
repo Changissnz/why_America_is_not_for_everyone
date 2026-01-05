@@ -106,7 +106,7 @@ viewpoint because he came to the United States and worked manual labor for the r
 money was the only way to feed his family. But I will add in some more of my notions on immigrants, the ones that labor. There is a primal mentality they carry with them, in order 
 to relate to Americans from other walks of life. Keeping matters basic. Hard work, satisfiable housing, enough money to pay the bills. But immigrant politics are also deeply 
 important to a country such as the United States, no matter if they are a laborer or a businessperson with strong foreign business ties. Maintaining cultural legacy. Being 
-compliant with what they ask, their demands, in other words. And the immigrants that join academia and the educated sectors are really something else. They offer more talents and 
+compliant to what they ask, their demands, in other words. And the immigrants that join academia and the educated sectors are really something else. They offer more talents and 
 differing ideas, is what I'm saying. For the better or worse? What else do immigrants bring to the United States? A hatred of communism? A superiority complex against another ethnic 
 group? Drugs? Technological talent? Language, intangible language, is already difficult for people to translate. So how would these sentiments, talents, and products translate into a 
 better United States? Things cannot be natural and free-flowing for long, based on my personal experience. Somewhere along the line of joyriding and careless partnerships, a serious 
