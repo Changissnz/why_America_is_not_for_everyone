@@ -94,7 +94,7 @@ competition abounds, of shameless tactics and careless but aggressive advances. 
 their efforts, there would be something that lasts. 
 
 America is not for everyone because suffering exists in this country. Promises are rescinded, all part of the art of deals, in this country as much as in other countries. The 
-difference is that American leadership intends to remain a developed country, or at least that is what I hope. Some Americans, born and raised in this country, cannot get ahead 
+difference is that American leadership intends for it to remain a developed country, or at least that is what I hope. Some Americans, born and raised in this country, cannot get ahead 
 due to their mediocrity. Other Americans, no matter how excellent, are made to inevitably answer to those at the top, maybe the rich, maybe political representatives. 
 
 I believe an important but seldomly spoken notion of political control, especially the kind that is to care for outliers and immigrants, is that it is better for some potential 
