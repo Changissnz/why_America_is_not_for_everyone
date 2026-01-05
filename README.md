@@ -102,7 +102,7 @@ to go to waste rather than being used to forge new beginnings. Socialists in tra
 believe this. But believing in this notion does not necessarily mean everyone can play by the same rules or co-exist with each other, just like that.  Migrants, from underdeveloped countries, 
 have a different mentality to project. Well, at least the honest ones. Working hard. Not partaking in the black market, let alone be a major chess piece in it. Migrants from underdeveloped 
 countries tend to have a more materialistic view to share, based on their communication with other people. I don't mean this in a disparaging way. My grandfather had that 
-viewpoint because he came to the United States and worked manual labor for the rest of his life. So in his mind, hard work always equates to getting paid, and getting paid with 
+viewpoint when he came to the United States and worked manual labor for the rest of his life. So in his mind, hard work always equates to getting paid, and getting paid with 
 money was the only way to feed his family. But I will add in some more of my notions on immigrants, the ones that labor. There is a primal mentality they carry with them, in order 
 to relate to Americans from other walks of life. Keeping matters basic. Hard work, satisfiable housing, enough money to pay the bills. But immigrant politics are also deeply 
 important to a country such as the United States, no matter if they are a laborer or a businessperson with strong foreign business ties. Maintaining cultural legacy. Being 
