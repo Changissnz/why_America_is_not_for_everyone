@@ -35,7 +35,7 @@ I disdained fraternity after high school. I already figured, in my head and base
 that has or had partaken would eventually turn into any other fink rat. Here's how I believe the police work with drugs and all, since drug use turns endemic. The police 
 and fraternities get along. Police are also just as likely to be w**** f****** as any other person, based on the unofficial mental statistics I have. So police 
 have to participate in all this vice, in order to uncover the vice. They might also have been the ones dealing the drugs in the first place. How do you figure someone 
-that has only a phone as their most valuable possession would be able to score hard drugs? And these hard drugs are imported, not grown domestically, or manufactured 
+that has only a phone as their most valuable possession would be able to score hard drugs? And these hard drugs are imported (not grown domestically) or manufactured 
 in a factory. These drugs are also highly addictive and do not provide for much intellectual introspection. A haze of euphoric sleepiness, or short little spikes of 
 thrilling exhilaration, based on the anecdotes I've read. But the drug business can pay a lot more than scholasticism. Scholasticism is as lame as it is intangible, 
 in the minds of people seeking material pleasures and material wealth. So there were and continue to be these unknown channels of drug distribution. I figure someone 
