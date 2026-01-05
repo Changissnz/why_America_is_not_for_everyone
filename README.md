@@ -89,9 +89,9 @@ betray. Where there is anti-establishment, there is friction and disappointment 
 Institutions constrain peoples' options. When the labor from those options fail to satisfy some people, there is a rejection of institutional authority. Reasons abound for why. 
 Maybe someone is jealous and does not feel that their peer deserves that position at that institution, while they would be just a pawn if they were to join. Maybe the institution 
 is waging political war, playing people against each other, separating families, and forcing labor. With that said, once some institutions go down under, there is no replacement 
-that can be any different from them, except ones that emerge in a renewed and youthful similarity. It is during the downtime of transitioning from one institution to the next that 
-competition abounds, of shameless tactics and careless but aggressive advances. But that energy always converges to a stasis. If the leaders were actually serious and honest in 
-their efforts, there would be something that lasts. 
+that can be any different from their greatness without failing, except ones that emerge in a renewed and youthful similarity. It is during the downtime of transitioning from one 
+institution to the next that competition abounds, of shameless tactics and careless but aggressive advances. But that energy always converges to a stasis. If the leaders were actually 
+serious and honest in their efforts, there would be something that lasts. 
 
 America is not for everyone because suffering exists in this country. Promises are rescinded, all part of the art of deals, in this country as much as in other countries. The 
 difference is that American leadership intends for it to remain a developed country, or at least that is what I hope. Some Americans, born and raised in this country, cannot get ahead 
