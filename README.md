@@ -98,7 +98,7 @@ difference is that American leadership intends for it to remain a developed coun
 due to their mediocrity. Other Americans, no matter how excellent, are made to inevitably answer to those at the top, maybe the rich, maybe political representatives. 
 
 I believe an important but seldomly spoken notion of political control, especially the kind that is to care for outliers and immigrants, is that it is better for some potential 
-to go to waste rather than being used to forge new beginnings. Socialists in traditional societies believe this, many American ultra-conservatives believe this, and many immigrants 
+to go to waste rather than be used to forge new beginnings. Socialists in traditional societies believe this, many American ultra-conservatives believe this, and many immigrants 
 believe this. But believing in this notion does not necessarily mean everyone can play by the same rules or co-exist with each other, just like that.  Migrants, from underdeveloped countries, 
 have a different mentality to project. Well, at least the honest ones. Working hard. Not partaking in the black market, let alone be a major chess piece in it. Migrants from underdeveloped 
 countries tend to have a more materialistic view to share, based on their communication with other people. I don't mean this in a disparaging way. My grandfather had that 
