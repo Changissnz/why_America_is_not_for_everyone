@@ -61,7 +61,7 @@ Mac Miller, a somewhat sad tale in the world of hip hop, a genre characterized b
 societies, depressing ironies, and violent new beginnings, made his mark as a rapper gone too soon practicing a musical genre that is not so elitist, but also not so for all
 peoples either. 
 
-Moving on past the hedonism, celebrated by the underworld and dressed up in gold and marriage ceremonies and by above, there are also more deficits to American life. The 
+Moving on past the hedonism, celebrated by the underworld and dressed up in gold and marriage ceremonies by above, there are also more deficits to American life. The 
 media industry. Once 2016 hit, I noticed a decline in my media feeds. It wasn't solely because my media feeds were linking me to more alternative media. Public Broadcasting 
 Corporation (PBS) and National Public Radio (NPR) were getting splintered underneath, and alternative media swept in to take its place on the internet, where most of the 
 younger generation get their media from. The rise of alternative media meant that viewership was getting splintered into the old media and new media groups. And the alternative 
