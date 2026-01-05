@@ -7,7 +7,7 @@ A short opinion piece on why America is not for everyone.
 I've never been able to afford housing on my own, except for a brief year in Portland, Oregon, a studio apartment in the ghettos. I am in my early 30's, and I 
 don't have nice things to say about how some things transpired. Ever since that one year in that studio apartment, the economy brought me to my knees. And I 
 don't mean the kind of bringing to the knees that is to signal loyalty to a ruler. I mean the kind due to dishonest, deceptive, subversive and maybe even 
-terroristic practices that break the backbones of businesses, neuters corporations, and sells the souls of its youth's potential. I will go in depth into what 
+terroristic practices that break the backbones of businesses, neuter corporations, and sell the souls of its youth's potential. I will go in depth into what 
 I mean by this ornate language. 
 
 In Portland, Oregon, there were housing issues that affected people. During my college years, I had to seek housing off campus. A time period after I settled into 
